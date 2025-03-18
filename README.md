@@ -10,6 +10,9 @@ Luis Patron Rosano
 
 
 Y yo llegue a tu casa temblando de miedo, y te pedi el perdon que yo nunca concedo
+
+
+
 El corte de Terry Crews esta de pelos
 
 
